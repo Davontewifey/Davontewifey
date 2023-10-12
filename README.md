@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Davontewifey
 - 👀 I’m interested in cheerleanding, track, and texting my bf 
 - 🌱 I’m currently learning french 
-- 💞️ I’m looking to collaborate on y boyfriends and my one year
+- 💞️ I’m looking to collaborate on...
 - 📫 How to reach me @kayleigh.sophie@hcs.stier.org 
 
 <!---
